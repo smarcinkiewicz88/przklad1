@@ -1,0 +1,1 @@
+# przklad1
